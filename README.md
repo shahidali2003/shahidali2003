@@ -24,7 +24,7 @@ Strong in analytics, reporting, and workflow automation with a problem-solving m
 • Freelance dashboards & automation projects
 • Collaboration on analytics tools
 
-📫 Reach me: shahidali7644444@gmail.com(mailto:shahidali7644444@gmail.com)
+📫 Reach me: shahidali7644444@gmail.com
 
 
 ## 🌐 Socials:
